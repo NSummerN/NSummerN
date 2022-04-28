@@ -1,8 +1,3 @@
-- 👋 Hi, I’m @NSummerN
-- 👀 I’m interested in ...  Games
-- 🌱 I’m currently learning ...  CST in NJUPT
-- 💞️ I’m looking to collaborate on ... ?
-- 📫 Contact me @ WeedyEver@163.com or 2692056815@qq.com
 
 一个普普通通的在校大学生
 
